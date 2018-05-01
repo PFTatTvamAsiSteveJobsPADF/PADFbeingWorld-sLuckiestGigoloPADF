@@ -63,7 +63,7 @@ Powered by Blogger.
 
 ] about the idiosyncratically Whorish, but Perversely So, Nature of 
 Modern Women, It Strikes Me as Quite Interesting--including my encounter not too long ago with a woman, who Licks Black Men's anuses in public, who had the 
-nerve to tell me not to touch her because on the very same night that I went on a date with a Haole Whore Named Lauren Teneriello with my keys 
+nerve to tell me not to touch her because on the very same night that I went on a date with a Haole Whore Named Lauren Te_llo with my keys 
 attached to my rings as I've Practiced Quite Successfully since the goddamn loss of misguided and wasteful trip to goddamned Virginia Beach Hell (except for  
 the more nuisance loss of keys at shithole Target of Mundanely Hellish Brooklyn) apparently said novelty Spooked her too much--along with my phenotype andor
 whatever else I presented to her despite the fact that there are free videos available online for any 5 year old with an overactive libido or who accidentally
